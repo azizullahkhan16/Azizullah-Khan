@@ -1,1 +1,2 @@
-# Azizullah-Khan
+# Azizullah-Khan, IBA Class of 2025.
+My experience of this course is quite amazing. I came across my new things which was a bit unexpected. I am a transfer student from BBA to BSCS and the reason why I shifted is because I love technical details and through this program, I can turn my imagination into reality. This course is really helpful because it is building a strong base for us which is needed by every Computer Engineer. 
